@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jenlost
 - 👀 I’m interested in learning about digitalisation
-- 🌱 I’m currently learning it all
+- 🌱 I’m currently learning it all, especially on fair email
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me - just write a message
 
